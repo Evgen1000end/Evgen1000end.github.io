@@ -1,0 +1,11 @@
+---
+title:  "In The Court Of The Crimson King"
+subtitle: "King Crimson"
+author: "Wferr"
+avatar: "img/authors/wferr.png"
+image: "img/post2.jpg"
+date:   2015-04-21 12:12:12
+---
+
+An eye-opening debut if ever there was, there was, there was. That bespectacled musical mage, ROBERT FRIPP, indeed assembled a court of kings for this adventure: MICHAEL GILES, GREG LAKE, IAN MCDONALD, PETER SINFIELD. Most would remain for Crimson's next voyage, but already the band was writing their epitaph. With such a sense of urgency, the band takes pains to get it right the first time, and they do. In fact, beyond peradventure, no band had sallied forth into the forest for the first time and achieved this measure of fame on their return. When the dust had settled, KING CRIMSON was crowned rock's new champion, ushering in a golden age of music where brute force and beauty commingle with the sounds of distant worlds. That such powerful songs could be rendered with as deft a touch was a revelation. Cream had aspired to this place with "Tales of Brave Ulysses", the Moodies had sought to soar so high on their mellotron one "Tuesday Afternoon", but both were revealed as pretenders to the crown by "The Court of the Crimson King". The album also set the stage for the further adventures of ELP and the progressive paladins who followed. Though perhaps inspired by the psychedelic spelunkering of THE BEATLES, PINK FLOYD and CREAM, KING CRIMSON was birthed a titan, fully formed in body and in vision. Everyone has their appointed post, and all perform their duties with skill and imagination. They were in some sense the original sonic sculptors; with the exception of the instrumental experimentation of "Moonchild", the outcome is pre-arranged and the players have but to execute their parts to bring their work of art to life. No other flower in the prog garden has bloomed so brightly in its first season. Subsequent albums may have exceeded their first in execution, but never in artistry.
+"In The Court of the Crimson King" remains the cornerstone of the temple, and thus a cornerstone of any progressive rock collection.
